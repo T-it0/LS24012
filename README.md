@@ -1,0 +1,1 @@
+pido una disclpa por la irresponsabilidad, tuve problemas a ultima hora con github ya que no sabia como se usaba y envie el link equivocado, al final tampoco pude hacer el ejercicio 2, esto es una pequeña disculpa por los inconvenientes
